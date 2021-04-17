@@ -1,0 +1,1 @@
+# Mid-term-assessment-of-QG-training-camp
